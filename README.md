@@ -1,0 +1,1 @@
+# vriacademy.osnsmp
